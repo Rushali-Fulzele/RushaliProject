@@ -1,2 +1,2 @@
 # RushaliProject
-Author - Rushali Fulzele
+Author - Rushali Fulzele(Rushu)
